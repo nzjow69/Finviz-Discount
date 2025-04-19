@@ -198,6 +198,13 @@ Source: [Reddit](https://www.reddit.com/r/ValueInvesting/comments/15bcafi/who_us
 
 Feel free to check more reviews of Finviz on different platforms.
 
+**More Deals:**
+
+* [Udacity coupon](https://github.com/nzjow69/Udacity-coupon-code)
+* [Datacamp coupon](https://github.com/nzjow69/datacamp-coupon-code)
+* [KodeKloud coupon](https://github.com/nzjow69/kodekloud-coupons/)
+* [Prepscholar coupon](https://github.com/nzjow69/prepscholar-coupon)
+
 ## About Finviz
 
 Founded in 2007, Finviz is a leading stock market analysis and screening platform used by traders worldwide.
